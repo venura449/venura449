@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
+🔭 I’m currently working on Gravity<br>👯 I’m looking to collaborate on any tech company<br>🤝 I’m looking for help with my work<br>🌱 I’m currently learning @ SLIIT University<br>
 
 
 ## 🌐 Socials:
